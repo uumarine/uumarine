@@ -1,4 +1,4 @@
-### Hi, I'm Marin!
+### Hi🫶, I'm Marin!✨
 🖥️Junior Software Developer<br/>
 👩‍🎓Computer Science student in Hungary<br/>
 
